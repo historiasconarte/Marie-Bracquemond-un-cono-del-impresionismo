@@ -1,1 +1,7 @@
 # Marie-Bracquemond-un-cono-del-impresionismo
+Marie Bracquemond, reconocida como una de las tres damas del impresionismo, dejó un legado artístico que aún resuena en la historia del arte. Nacida en circunstancias modestas y casada con el académico Felix Bracquemond, Marie superó barreras sociales y artísticas para expresar su talento innato. A través de obras como "La merienda", destacó por su uso innovador de la luz y la perspectiva, ofreciendo una ventana a la vida de la élite con un enfoque impresionista.
+
+A lo largo de su carrera, Marie experimentó con estilos y técnicas que desafiaron las normas de su época. "Las tres gracias" es particularmente notable por su dinámica composición y uso audaz del color, mostrando la influencia de la estética oriental de su esposo, aunque esto finalmente llevó a tensiones dentro de su matrimonio. Estas obras no solo demuestran su habilidad técnica, sino también su capacidad para capturar la esencia emocional y social de su tiempo.
+
+A pesar de su prominencia inicial, la carrera de Bracquemond fue truncada por las presiones familiares y sociales, lo que limitó su reconocimiento posterior. Hoy en día, su obra es un testimonio del talento y la perseverancia femenina en un campo dominado por hombres. Su historia no solo refleja su genio artístico, sino también las complejidades de ser una mujer artista en el siglo XIX.
+https://historiasconarte.com/2024/06/19/marie-bracquemond/
